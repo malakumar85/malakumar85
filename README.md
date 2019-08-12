@@ -6,10 +6,6 @@ In April 2019, I joined GitHub as their Program Manager, Open Source for Good wi
 
 Outside of work, one of my biggest accomplishments is getting my novel *The Paths of Marriage* published in October 2014.
 
-![alt text][logo]
-
-[logo]: https://malakumar.com/wp-content/uploads/elementor/thumbs/PoM-cover1-lwk35a25om18t3wnxey9tziaucgrvuh5nr4xyy9hgs.jpg "The Paths of Marriage"
-
 Through a mix of hard work and luck, the novel sold around the world and solidly surfaced on the radar of a few major international publications. I did a US east coast book tour in early 2015.
 
 If you'd like to learn more about my work or have a chat (en français est possible !), please feel free to contact me through [my website](https://malakumar.com). 
