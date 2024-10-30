@@ -6,8 +6,7 @@
 
 - Director of Program Management, AI Safety @ ML Commons
 - Supporting NYU's Center for Health Data Science
-- Starting a new fellowship with Open Future. More info coming soon.
-- Advising the ITU's OSEE program
+- Fellowship with Open Future (restarting in Nov 2024)
 - Making videos about tech and social good. <a href="https://www.youtube.com/@MalaKumar4" target="_blank">Watch here on YouTube</a>
 - In the midst of my book tour for my second novel - <em><a href="https://malakumar.com/writing/what-it-meant-to-survive" target="_blank">What it Meant to Survive</a></em>
 
