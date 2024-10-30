@@ -4,7 +4,7 @@
 
 ### Currently doing
 
-- Director of Program Management, AI Safety @ ML Commons
+- Director of Program Management, AI Safety @ MLCommons
 - Supporting NYU's Center for Health Data Science
 - Fellowship with Open Future (restarting in Nov 2024)
 - Making videos about tech and social good. <a href="https://www.youtube.com/@MalaKumar4" target="_blank">Watch here on YouTube</a>
