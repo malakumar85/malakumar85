@@ -4,6 +4,7 @@
 
 ### Currently doing
 
+- Head of Impact at Humane Intelligence
 - Debating my next move
 - Supporting NYU's Center for Health Data Science
 - In the midst of my book tour for my second novel - <em><a href="https://malakumar.com/writing/what-it-meant-to-survive" target="_blank">What it Meant to Survive</a></em>
