@@ -4,7 +4,7 @@
 
 ### Currently doing
 
-- Head of Impact at Humane Intelligence
+- Interim Executive Director at [Humane Intelligence](https://humane-intelligence.org)
 - Supporting NYU's Center for Health Data Science
 - In the midst of my book tour for my second novel - <em><a href="https://malakumar.com/writing/what-it-meant-to-survive" target="_blank">What it Meant to Survive</a></em>
 - Making videos about tech and social good. <a href="https://www.youtube.com/@MalaKumar4" target="_blank">Watch here on YouTube</a>
