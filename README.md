@@ -4,7 +4,7 @@
 
 ### Currently doing
 
-- Interim Executive Director at [Humane Intelligence](https://humane-intelligence.org)
+- Executive Director at [Humane Intelligence](https://humane-intelligence.org)
 - Promoting my second novel - <em><a href="https://malakumar.com/writing/what-it-meant-to-survive" target="_blank">What it Meant to Survive</a></em>
 - Making videos about tech and social good. <a href="https://www.youtube.com/@MalaKumar4" target="_blank">Watch here on YouTube</a>
 
